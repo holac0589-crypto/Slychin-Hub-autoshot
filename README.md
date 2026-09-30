@@ -1,0 +1,1 @@
+# Slychin-Hub-autoshot
